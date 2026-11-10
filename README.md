@@ -1,0 +1,1 @@
+# sozcukarenasi_zitanlam
